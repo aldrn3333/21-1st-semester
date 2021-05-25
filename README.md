@@ -1,3 +1,3 @@
-20212970    Minjae Kim
+20212970 Minjae Kim
 
 Kookmin Univ. SW
