@@ -1,3 +1,3 @@
 20212970 Minjae Kim
 
-Kookmin Univ. SW
+Kookmin Univ. school of computer science
